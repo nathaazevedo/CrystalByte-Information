@@ -67,7 +67,7 @@ PERGUNTAS E INFORMAÇÕES DE CONTATO
 
 Se você gostaria de acessar, corrigir, alterar ou excluir quaisquer informações pessoais que temos sobre você, registre uma queixa, ou simplesmente peça mais informações de contato a(o) nosso(a) Diretor(a) de privacidade através do nathaazevedo@hotmail.com ou pelo correio: Crystal Byte Studio
 
-[Re: Nathã Vieira de Azevedo, Diretor(a) da Crystal Byte]
+[Re: Nathã Vieira de Azevedo, Diretor da Crystal Byte]
 
 [Rua João Pessoa, Blumenau, SC, 89036005, Brazil]
 
