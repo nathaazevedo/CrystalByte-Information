@@ -58,3 +58,17 @@ Este aplicativo não tem restrições de idades, independente de seu estado ou p
 SEÇÃO 6 - ALTERAÇÕES NA POLÍTICA DE PRIVACIDADE
 
 Reservamos o direito de modificar essa política de privacidade a qualquer momento. Portanto, por favor, leia-a com frequência. As alterações e esclarecimentos surtem efeito imediatamente após serem publicadas no site. Caso façamos alterações na política de privacidade, iremos notificá-lo sobre a atualização. Assim, você saberá quais informações coletamos, como as usamos, e sob que circunstâncias, caso aplicável, as utilizaremos e/ou divulgaremos.
+
+Caso ocorra a fusão de nossa empresa com outra empresa, suas informações podem ser transferidas para os novos proprietários para que possamos continuar vendendo produtos para você.
+
+
+PERGUNTAS E INFORMAÇÕES DE CONTATO
+
+Se você gostaria de acessar, corrigir, alterar ou excluir quaisquer informações pessoais que temos sobre você, registre uma queixa, ou simplesmente peça mais informações de contato a(o) nosso(a) Diretor(a) de privacidade através do nathaazevedo@hotmail.com ou pelo correio: Crystal Byte Studio
+
+[Re: Nathã Vieira de Azevedo, Diretor(a) da Crystal Byte]
+
+[Rua João Pessoa, Blumenau, SC, 89036005, Brazil]
+
+----
+
