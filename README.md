@@ -53,6 +53,7 @@ Se você nos fornecer as suas informações de cartão de crédito, elas serão 
 
 
 SEÇÃO 5 - IDADE DE CONSENTIMENTO
+
 Este aplicativo não tem restrições de idades, independente de seu estado ou província de residência e que você nos deu seu consentimento para permitir que qualquer um dos seus dependentes menores ou maiores de idade usem esse aplicativo.
 
 SEÇÃO 6 - ALTERAÇÕES NA POLÍTICA DE PRIVACIDADE
