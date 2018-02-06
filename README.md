@@ -1,6 +1,4 @@
-# politicadeprivacidade
-
-POLÍTICA DE PRIVACIDADE
+# POLÍTICA DE PRIVACIDADE
 
 ----
 SEÇÃO 1 - CONSENTIMENTO
